@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with vip NFT Floor Sweeper for nft flip bot | royalty-calculator & private-RPC-nodes, the #1 nft flip bot. Includes royalty-calculator and
 
 
 
